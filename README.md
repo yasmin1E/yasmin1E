@@ -8,6 +8,6 @@ Meu nome é Yasmin sales
 
 ### Você entrar em contato comigo 📫
 
-salesyasmin541@gmail.com
+ysales328@gamil.com
 
-@yasmin.s.sales
+
